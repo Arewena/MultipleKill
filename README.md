@@ -5,6 +5,5 @@
 
 도움 주신분: SapoKr, patrick-choe
 
-*내일 안으로 개선 예정
 
 
